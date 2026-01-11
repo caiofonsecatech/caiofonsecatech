@@ -60,4 +60,4 @@ Não refletem ainda experiência profissional.
 
 ## 🤝 Contato
 
-- 💼 LinkedIn: *(adicione seu link aqui)*
+- 💼 LinkedIn: https://www.linkedin.com/in/caio-fonseca-8547493a4/
